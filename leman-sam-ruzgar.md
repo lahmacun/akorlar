@@ -1,0 +1,28 @@
+Em                                   Dm                 Em
+Penceremin perdesini havalandıran rüzgar
+Em                                    Dm                   Em
+Denizleri köpük köpük dalgalandıran rüzgar  
+Dm                                                Em
+Gir içeri usul usul beni bu dertten kurtar
+G                       Am    Dm           Em
+Gir içeri usul usul beni bu dertten kurtar  
+
+Am                               Em
+Yabancısın buralara nerelerden geliyorsun
+Am                                   Em
+Otur dinlen başucuma bell i ki çok yorulmuşsun  
+
+Dm              Em          Dm              Em
+Bana esmeyi anlat bana sevmeyi anlat
+Dm               Em           F               Em
+Bana esmeyi anlat esip geçmeyi anlat  
+
+Dm                                   Am  
+Anlat ki çözülsün dilim ben rüzgarım demeliyim
+Dm                                  Am                   Em
+Rüzgarlığı anlat bana  senin gibi esmeliyim  
+
+Dm              Em          Dm              Em
+Bana esmeyi anlat bana sevmeyi anlat
+Dm               Em         F               Em
+Bana esmeyi anlat esip geçmeyi anlat
